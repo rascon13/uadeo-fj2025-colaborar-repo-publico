@@ -1,0 +1,1 @@
+# uadeo-fj2025-colaborar-repo-publico
